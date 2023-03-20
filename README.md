@@ -1,0 +1,1 @@
+# OldTempSensorAdapter.github.io
